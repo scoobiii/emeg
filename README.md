@@ -11,7 +11,7 @@
 
 A inflação tripla americana de 2025 (energia, alimentos, criminalidade) **não começou em Washington** — começou em **Moscou** em 2021 e se consolidou na **sabotagem do Nord Stream** em setembro de 2022.
 
-![Merkel Acertou](emeg/assets/assets/131914172.jpg)
+![Merkel Acertou](emeg/assets/131914172.jpg)
 
 O que parecia uma "crise energética europeia" desencadeou uma **reconfiguração global de cadeias produtivas** que:
 
